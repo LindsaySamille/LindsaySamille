@@ -4,4 +4,4 @@
 
 ✨ Atualmente estou me aprofundando na programação e no que a mesma me proporciona ✨
 
-![image](https://github.com/user-attachments/assets/bbf5a23f-0d26-4f9d-8e20-82bb3e9f57b7)
+![gif](https://github.com/user-attachments/assets/7153a910-2b31-4cc3-9927-3dba3aeb6824)
